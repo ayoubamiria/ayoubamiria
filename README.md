@@ -21,7 +21,7 @@ I'm a passionate developer with a keen interest in building innovative solutions
 
 ## 💬 Let's Connect
 - **LinkedIn:** [linkedin.com/in/ayoubamiria](https://www.linkedin.com/in/ayoubamiria)
-- **Email:** amiriaayoub@example.com 
+- **Email:** amiriaayoub@gmail.com 
 
 
 
